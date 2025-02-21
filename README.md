@@ -1,2 +1,2 @@
 # krishna
-why people choose wrong people to date
+Hi this is devosp learing course
